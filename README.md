@@ -1,0 +1,1 @@
+# bate1206.github.io
